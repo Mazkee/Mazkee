@@ -1,4 +1,4 @@
-● Currently working on Femma, a finnish Fivem community on discord.gg/femma
+● Currently working on Femma, a Finnish Fivem community on discord.gg/femma
 
 ● Business Inquiries: @Mazkee#0001 on Discord
 
