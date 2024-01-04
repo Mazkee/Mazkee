@@ -1,6 +1,6 @@
-● Currently working on Femma, a Finnish Fivem community on discord.gg/femma
+● Currently working on Femma, a Finnish FiveM community on discord.gg/femma
 
-● Business Inquiries: @Mazkee#0001 on Discord
+● Business Inquiries: @Mazkee on Discord
 
 <!---
 Mazkee/Mazkee is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
